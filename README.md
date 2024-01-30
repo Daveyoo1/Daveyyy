@@ -5,6 +5,7 @@ jdjdmnck
 Ronaldo and Davido are the GOATS!
 
 **God is good** 
+DEO
 
 *Great stuvs* 
 
